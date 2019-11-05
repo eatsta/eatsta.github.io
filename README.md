@@ -1,2 +1,0 @@
-# Kocham Agatkę !
-xcvxcvxvc
